@@ -1,0 +1,1 @@
+Ödev olarak verlen görseli elimden gelene kadar ödev´de belirtilen şekle benzetmeye çalıştım.Umarım başarmışımdır.Teşkkürler
